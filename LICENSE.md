@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with no-ban kaizen Scripts, the #1 Script. Includes auto-sell and custom skins for unbeatable performance.
 
 
 
